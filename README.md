@@ -3,16 +3,27 @@
 ✘ 𝗗𝗡𝗜 ✘ 
 
 ⭑ Under 16.
+
 ⭑ Racist.
+
 ⭑ Proshipper
+
 ⭑ Disrespect LGBTQ
+
 ⭑ Pedo
+
 ⭑ Stalkers
+
 ⭑ Solar and her friends.
+
 ⭑ Harasser
+
 ⭑ You disrespect fandoms I'm in
+
 ⭑ Abuser
 
+
 જ⁀➴ 𝐀𝐛𝐨𝐮𝐭 𝐜𝐫𝐞𝐚𝐭𝐨𝐫 ・・・・・
+
 ☕︎ 𝘩𝘢𝘱𝘱𝘪𝘭𝘺 𝘵𝘢𝘬𝘦𝘯 , I love my boyfriend </3 ☕︎
 ☕︎ 
