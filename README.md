@@ -26,4 +26,4 @@
 જ⁀➴ 𝐀𝐛𝐨𝐮𝐭 𝐜𝐫𝐞𝐚𝐭𝐨𝐫 ・・・・・
 
 ☕︎ 𝘩𝘢𝘱𝘱𝘪𝘭𝘺 𝘵𝘢𝘬𝘦𝘯 , I love my boyfriend </3 ☕︎
-☕︎ 
+☕︎ cat lover, game addict, coffee addict. b'day - 12th November. 'My ego is based on your behavoir' 
